@@ -1,2 +1,0 @@
-# Ram
-ICT DAY wise 
